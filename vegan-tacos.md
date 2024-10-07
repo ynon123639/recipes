@@ -1,5 +1,5 @@
-Quick Vegan Tacos
-==================
+Quick Vegan Tacos 🌮️
+=====================
 
 Ingredients:
 - 1 can of black beans, drained and rinsed
