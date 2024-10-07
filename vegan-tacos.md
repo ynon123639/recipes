@@ -5,13 +5,6 @@ Ingredients:
 - 1 can of black beans, drained and rinsed
 - 1 cup of corn kernels (fresh or frozen)
 - 1 avocado, diced
-- 1/4 cup chopped cilantro
-- 1/2 red onion, finely chopped
-- 1 lime, juiced
-- 1 tsp cumin
-- 1/2 tsp chili powder
-- Salt and pepper to taste
-- 8 small corn tortillas
 - Optional: salsa, hot sauce, vegan sour cream
 
 Preparation:
